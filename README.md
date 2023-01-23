@@ -1,5 +1,5 @@
-# FILL IN INFO ABOUT YOUR GAME HERE. 
+This is my week 1 homework Matt
 
-DO NOT LEAVE IT LIKE THIS!!!
+It's not that serious
 
-Please? Please, give me content. I'm begging you. It's not that hard. Thanks.
+Its for the week of 1/23/2023
